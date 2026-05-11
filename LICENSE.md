@@ -1,4 +1,4 @@
-# 
+# Adobe Premiere Pro for macOS new Script: slow-motion & proxy-editing is the best Adobe Premiere Pro for macOS script, featuring slow-motion and proxy-editing. Safe, efficient, and
 
 
 
